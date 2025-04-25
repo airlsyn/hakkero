@@ -1,0 +1,1 @@
+The Hakkero, also known as the Eight Trigram Furnace, was a magical furnace that the Jade Emperor used to purify his Golden Elixir.
